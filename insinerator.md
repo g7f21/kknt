@@ -5,7 +5,7 @@
 
 <p align = justify> Tim KKN-T Inovasi Desa Sukajaya memiliki program utama yaitu sosialisasi dan simulasi insinerator. Insinerator merupakan alat pengolah sampah yang dirancang untuk membakar sampah pada suhu tinggi sehingga mengurangi volume sampah secara signifikan. Selain itu, alat ini juga dapat mengurangi dampak polusi udara dan kerusakan ekosistem akibat dari pembakaran terbuka. Dari segi pertanian, abu hasil pembakaran sampahnya pun dapat dimanfaatkan sebagai bahan pupuk tambahan bagi para petani.
 
-<p align = justify> Program ini didasari oleh potensi desa sukajaya yang mayoritas penduduknya adalah petani. Selain itu, hal ini didorong juga oleh keberadaan tempat-tempat pembakaran sampah secara terbuka di setiap RW-Nya. Tim KKN ini menilai bahwa tempat-tempat pembakaran sampah yang sudah ada tersebut dapat direkonstruksi ulang menjadi insinerator kedepannya.
+<p align = justify> Program ini didasari oleh potensi desa sukajaya yang mayoritas penduduknya adalah petani. Selain itu, hal ini di dukung oleh keberadaan tempat-tempat pembakaran sampah secara terbuka di setiap RW-Nya. Tim KKN menilai bahwa tempat-tempat pembakaran sampah yang sudah ada tersebut dapat direkonstruksi ulang menjadi insinerator kedepannya.
 
 <p align = justify> Pada sosialisasi ini, pihak desa dan masyarakat menilai bahwa program ini sangat membantu masyarakat dalam mengelola sampah dengan baik serta kedepannya program ini berpotensi untuk dikembangkan lebih lanjut oleh pemerintah setempat. Sebagai upaya untuk medukung keberlanjutan program ini, tim KKN juga membuat peta titik lokasi yang berpotensi untuk peletakkan insinerator di wilayah desa tersebut.
 

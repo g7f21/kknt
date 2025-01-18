@@ -7,8 +7,8 @@ Tim KKN-T Inovasi Desa Sukajaya memiliki program utama yaitu sosialisasi dan sim
 
 Program ini didasari oleh potensi desa sukajaya yang mayoritas penduduknya adalah petani. Selain itu, hal ini didorong juga oleh keberadaan tempat-tempat pembakaran sampah secara terbuka di setiap RW-Nya. Tim KKN ini menilai bahwa tempat-tempat pembakaran sampah yang sudah ada tersebut dapat direkonstruksi ulang menjadi insinerator kedepannya.
 
-Pada sosialisasi ini, pihak desa dan masyarakat menilai bahwa program ini sangat membantu masyarakat dalam mengelola sampah dengan baik serta kedepannya program ini berpotensi untuk dikembangkan lebih lanjut oleh pemerintah setempat.
+Pada sosialisasi ini, pihak desa dan masyarakat menilai bahwa program ini sangat membantu masyarakat dalam mengelola sampah dengan baik serta kedepannya program ini berpotensi untuk dikembangkan lebih lanjut oleh pemerintah setempat. Sebagai upaya untuk medukung keberlanjutan program ini, tim KKN juga membuat peta titik lokasi yang berpotensi untuk peletakkan insinerator di wilayah desa tersebut.
 
 "Masyarakat menyambut dengan baik program ini, mereka berharap pengelolaan sampah di desa sukajaya bisa lebih baik dan kedepannya dapat menambah nilai positif dan ekonomis". Ujar Nuryana, salah seorang anggota tim KKN.
 
-Tim KKN-T Desa Sukajaya berharap kedepannya program ini dapat dikembangkan lebih lanjut oleh pemerintah setempat dengan dibuatnya insinerator-insinerator baru di setiap titik potensial yang ada di Desa Sukajaya.
+Tim KKN-T Desa Sukajaya berharap, kedepannya program ini dapat dikembangkan lebih lanjut oleh pemerintah setempat dengan dibuatnya insinerator-insinerator baru di setiap titik potensial yang ada di Desa Sukajaya.

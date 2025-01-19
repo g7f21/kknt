@@ -1,7 +1,7 @@
 # Upaya Pengelolaan Sampah di Lingkungan Masyarakat, Tim KKN-T IPB University Melakukan Kegiatan Sosialisasi dan Simulasi Insinerator di Desa Sukajaya
 ![image](https://github.com/user-attachments/assets/d1dd8922-32e2-4046-8be8-2e263bf65aa5)
 
-<p align = justify> Kelompok mahasiswa KKN-T Inovasi Desa Sukajaya Kecamatan Bojongpicung, Kabupaten Cianjur telah melaksanakan KKN periode kedua pada tanggal 22 Januari 2025. Tim ini diketahui oleh Gian Azaria dan dibimbing oleh Tri Sudibyo, S.T., M.Sc., Ph.D. Bersama dengan 8 orang anggota lainnya yaitu Adlijil Ikram, Aldani Putra M, Dian Awallia Havita, Gusti Risna Ayu, Herlina Aulia Daulay, Marsya Mutia, Nuryana Saepul Ramdan, dan Rahmah Dwi Cahyani.
+<p align = justify> Kelompok mahasiswa KKN-T Inovasi Desa Sukajaya Kecamatan Bojongpicung, Kabupaten Cianjur telah melaksanakan KKN periode kedua pada tanggal 22 Januari 2025. Tim ini diketahui oleh Gian Azaria dan dibimbing oleh Tri Sudibyo, S.T., M.Sc., Ph.D. Bersama dengan 8 orang anggota lainnya yaitu Aldani Putra M, Dian Awallia Havita, Gusti Risna Ayu, Herlina Aulia Daulay, Marsya Muthya Zahran, Muhamad Adlijil Ikram, Nuryana Saepul Ramdan, dan Rahmah Dwi Cahyani.
 
 <p align = justify> Tim KKN-T Inovasi Desa Sukajaya memiliki program utama yaitu sosialisasi dan simulasi insinerator. Insinerator merupakan alat pengolah sampah yang dirancang untuk membakar sampah pada suhu tinggi sehingga mengurangi volume sampah secara signifikan. Selain itu, alat ini dapat mengurangi dampak polusi udara dan kerusakan ekosistem akibat dari pembakaran terbuka. Dari segi pertanian, abu hasil pembakaran sampahnya pun dapat dimanfaatkan sebagai bahan pupuk tambahan bagi para petani.
 
